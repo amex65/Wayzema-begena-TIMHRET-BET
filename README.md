@@ -1,1 +1,1 @@
-# Wayzema-begena-TIMHRET-BET
+ዋየዜማ የበገናና መንፈሳዊ ጥበባት ማሰልጠኛ
